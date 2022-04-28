@@ -1,1 +1,0 @@
-# Exerciciopw20221ds
